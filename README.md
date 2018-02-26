@@ -1,5 +1,8 @@
 # BitConnect
 
+[![npm version](https://badge.fury.io/js/bitconnect.svg)](https://badge.fury.io/js/bitconnect)
+
+
 Hey hey hey, wasa wasa wasa wasuuuuup!!
 
 
