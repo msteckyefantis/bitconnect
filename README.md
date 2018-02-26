@@ -6,7 +6,7 @@
 Hey hey hey, wasa wasa wasa wasuuuuup!!
 
 
-Check out [LessonShop.net](https://lessonshop.net) to take or teach lessons!!
+Check out [LessonShop.net](https://lessonshop.net) to take or teach lessons!! Get free marketing as a teacher!
 
 
 ---
